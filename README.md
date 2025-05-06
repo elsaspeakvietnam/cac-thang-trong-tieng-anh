@@ -19,7 +19,7 @@ Tên của 12 tháng theo tiếng Anh như sau:
 - November
 - December
 
-Bạn có thể học đầy đủ cách viết, cách phát âm và cách dùng qua bài tổng hợp [url=[https://vn.elsaspeak.com/cac-thang-trong-tieng-anh]các tháng trong tiếng Anh[/url] này:
+Bạn có thể học đầy đủ cách viết, cách phát âm và cách dùng qua bài tổng hợp [url=https://vn.elsaspeak.com/cac-thang-trong-tieng-anh] các tháng trong tiếng Anh[/url] này:
 
 Một vài lưu ý cơ bản khi sử dụng:
 - Tên tháng luôn viết hoa chữ cái đầu.
