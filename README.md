@@ -1,6 +1,8 @@
 ##Làm sao để nhớ nhanh tên 12 tháng trong tiếng Anh?
 https://vn.elsaspeak.com/cac-thang-trong-tieng-anh
+
 _Nếu bạn đang học tiếng Anh mà vẫn hay nhầm lẫn giữa March với May, hay giữa August với April, thì bài viết này dành cho bạn._
+
 Việc ghi nhớ tên **các tháng trong tiếng Anh** tưởng chừng đơn giản, nhưng khi áp dụng trong nói hoặc viết, rất nhiều người học vẫn bị lẫn lộn. Dưới đây là cách mình từng áp dụng và đã cải thiện rất nhiều trong việc nhớ tên và sử dụng đúng tháng trong tiếng Anh.
 
 #Danh sách các tháng tiếng Anh
